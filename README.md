@@ -1,2 +1,8 @@
 # ProjetoDio1
 Aulas DIO
+sdassdasaasass
+sa1sa21s2a1sa12sa
+1sa21sa21s2a1s2a
+1s2a1s2a1sa1sa2s
+s12a1s2a1s21sa2s
+a1s2a1s2a1s2a1s2
